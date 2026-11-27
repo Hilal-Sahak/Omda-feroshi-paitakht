@@ -1,0 +1,1 @@
+# Omda-feroshi-paitakht
